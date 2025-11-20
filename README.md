@@ -1,10 +1,10 @@
-***草榴社区最新地址（11/10更新）***
+***草榴社区最新地址（11/20更新）***
 
 免翻墙入口：https://t66y14.com
 
 永久入口需翻墙：https://caoliu4.com
 
-官方免费Q群：https://npm.onmicrosoft.cn/molehm@1.0.2/hm.html?id=d-9uYGT9
+官方免费Q群：https://huoma.peach-av.com/t/rnz2k0
 
 ——————————————————-
 
